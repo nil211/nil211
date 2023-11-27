@@ -9,8 +9,7 @@
 
 - 🤝 I’m looking for **Data Sc. projects**
 
-- 👨‍💻 All of my projects are available at [https://linktr.ee/nilanjana2003](https://linktr.ee/nilanjana2003)
-
+  
 - 📫 Please reach me **senguptanin@yahoo.co.in**
 
 - 📄 Know about my experiences [www.linkedin.com/in/saha35ニランジャナセングプタ-3a521973](www.linkedin.com/in/saha35ニランジャナセングプタ-3a521973)
